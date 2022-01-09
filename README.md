@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CarlTheNPC123
+- 👀 I’m interested in games
+- 🌱 I’m currently learning programming
+- 💞️ I’m looking to collaborate on roblox
+- 📫 How to reach me on the new computer
